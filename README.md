@@ -3,7 +3,7 @@ Get the latest updates about the soul calibur 2 mod and download link.
 Soul Calibur 2 Plus was created by Dcooper, Aska, Alasdair, and Diogenes.
 Here Get the lastest update versions. Tools and etc.
 Soul calibur 2 Plus Offers all 3 guest characters no longer exclusive to one of their respective consoles versions. Unfornetly they do not have the correct Models at the moment. But not to worry my full team is working on it hard everyday.
-This version is avabile on ps2, original xbox, and Gamecube.
+This version is avabile on ps2, original xbox, and Gamecube. This also works on emulation. If you do this on console it gotta be modded.
 
 Other Features we offer are Addtional costumes skins for the characters. (ps2 doesn't have any yet)
 Custom Voices 
